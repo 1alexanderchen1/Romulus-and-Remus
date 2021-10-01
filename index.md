@@ -24,6 +24,8 @@ As grown men, the twins were natural leaders and were able to kill Amulius, rein
 
 With all the evidence gathered, the final step is to connect the dots to draw the picture. Romulus and Remus are twins, meaning they look the same. Romulus had no reason to attack Remus, as Remus lost the augury; but Remus had the sake of the location of his city on the line. It is possible that younger siblings are jealous of the older one for always learning things before them, so the grudge may be even drawn out, not to mention the statistical evidence that suggests younger siblings are more likely to kill their older ones when both are of the same gender, checking multiple boxes for Romulus and Remus. 
 
+![Remus](https://cdn-0.socialstudiesforkids.com/graphics/remusromulus-death.png "Remus kills Romulus")
+
 The idea proposed is that Romulus did not kill Remus, but the other way around. Jealous that his brother bested him, Remus killed Romulus in anger. From there, he went on to take Romulus's identity to escape the guilt with a new identity. Remus did not lead the city well, making one bad decision after another such as kidnapping the Sabine women, leading to the Sabine wars. These wars caught the attention of Mars, the god of war, who realizes that the leader on one side is his murderous son Remus, and finally punished him. 
 
 These claims aren't baseless, with speculations of such arounsing in the minds of other Roman thinkers and writers. One such instance was Plutarch. To learn more about this theory, click 	[here](https://www.youtube.com/watch?v=dQw4w9WgXcQ) to read excerpts from Plutarch's manuscript "The Life of Romulus".
