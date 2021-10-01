@@ -1,8 +1,10 @@
 # The Legend
 
-![twinswolf](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/She-wolf_suckles_Romulus_and_Remus.jpg/350px-She-wolf_suckles_Romulus_and_Remus.jpg "Romulus and Remus with She-Wolf")
+![infanttwins](https://www.historyhit.com/app/uploads/2020/07/ares-rhea-silvia-1.jpg "Infant Romulus and Remus Taken by Amulius")
 
 Romulus and Remus were twins born to the war god Mars and Rhea Silvia, daughter of Nibitor, who was the king of the city Alba Longa. Nibitor was upsurped by his younger brother Amulius, who ordered the death of all the male heirs to Nibitor. The servant ordered to kill the twins, however, took pity on them; he put them in a basket and floated it down the Tiber River. It is said that the boys were found by a she-wolf named Lupa, who raised the boys.
+
+![twinswolf](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/She-wolf_suckles_Romulus_and_Remus.jpg/350px-She-wolf_suckles_Romulus_and_Remus.jpg "Romulus and Remus with She-Wolf")
 
 As grown men, the twins were natural leaders and were able to kill Amulius, reinstating Nibitor as the old king. They then went off to find their own settlement, to the area of seven hills where they were found by Lupa. When each brother favored a different hill, they agreed to have an augury, examining birds to see what the gods favored. Remus claims to have observed six birds compared to Romulus's twelve, and a heated arguement arose. In the end, Romulus killed Remus, then naming the city after himself and becoming the first king of Rome.
 
